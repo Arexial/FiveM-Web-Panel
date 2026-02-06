@@ -1,1 +1,1 @@
-discord.gg/leakbase & arexial's product
+north development & arexial's product
